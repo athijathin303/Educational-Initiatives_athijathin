@@ -2,7 +2,7 @@
 **Athi Jathin R**  
 
 - **Email:** athijathin72@gmail.com  
-- **GitHub:** [https://github.com/anxnth-byte](https://github.com/athijathin303)  
+- **GitHub:** [https://github.com/athijathin303](https://github.com/athijathin303)  
 - **College/Institute:** Thiagarajar College of Engineering  
 
 ---
